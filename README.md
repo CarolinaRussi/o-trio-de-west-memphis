@@ -4,9 +4,7 @@ Canal Colecionador de Ossos
 # Fontes e Referências da matéria:
 
 
-https://criminalminds.fandom.com/wiki/John_List
-
-https://pt.wikipedia.org/wiki/John_List](http://callahan.mysite.com/wm3/jl_mccaughey_declaration.html
+http://callahan.mysite.com/wm3/jl_mccaughey_declaration.html
 
 https://pt.wikipedia.org/wiki/Trio_de_West_Memphis
 
@@ -21,4 +19,4 @@ https://www.intrinseca.com.br/blog/2013/05/casamento-no-corredor-da-morte/
 
 DOCUMENTÁRIO:
 
-Paradise Lost - YOUTUBE)
+Paradise Lost - YOUTUBE
